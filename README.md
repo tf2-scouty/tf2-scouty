@@ -1,7 +1,6 @@
-## 𝜗 ໒꒰ ✙ ཀ ̟ ◟｡꒱ྀི১
-[![Untitled682-20250907064441.png](https://i.postimg.cc/PxFcCb2Z/Untitled682-20250907064441.png)](https://postimg.cc/JDZKgXw4)
-[![Untitled681-20250907070822.png](https://i.postimg.cc/4y0m20wd/Untitled681-20250907070822.png)](https://postimg.cc/kRxJBf03)
- ⠀ ⠀ ⠀ ⠀ ྀི︶˚̣̣̣ ⠀ ⠀⠀scouty ⠀ ◜ ⑅ 𓏼 ͡ ֪  ◝
- ⠀ ⠀ ⠀ ꒡ ͝ ⠀ ⠀14 ⠀ ⠀+ ⠀ ⠀he / him 𓈒⠀⠀⏖ † ྀི
- ⠀ ⠀  ༏ིྀ　‿　✙⠀ usually in tf2 area
-[![Untitled682-20250907064444.png](https://i.postimg.cc/rmmy6JDt/Untitled682-20250907064444.png)](https://postimg.cc/Ny3vmR7g)
+## heylo
+[![Untitled683-20250907071448.jpg](https://i.postimg.cc/prBtp55t/Untitled683-20250907071448.jpg)](https://postimg.cc/XBXPPJg2)
+ 　⠀  　 　 　• me and [@spike](https://github.com/spik3whis3rs)
+ 　⠀  　 　　scout / lee
+   　⠀  　14 | he - him
+     　⠀  　 　　 　⠀ tf2 area
